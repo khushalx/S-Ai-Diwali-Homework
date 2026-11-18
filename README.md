@@ -1,1 +1,0 @@
-# S-Ai-Diwali-Homework
